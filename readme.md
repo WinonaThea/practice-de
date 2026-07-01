@@ -36,3 +36,29 @@ terus lanjut ke vm3
 
 <img width="571" height="375" alt="image" src="https://github.com/user-attachments/assets/332055c8-4398-46d1-bc48-6d9898baab6c" />
 
+<img width="569" height="377" alt="image" src="https://github.com/user-attachments/assets/1227fc19-5f25-4336-8010-3b54d9527a19" />
+
+
+<img width="574" height="371" alt="image" src="https://github.com/user-attachments/assets/efaf2571-83d1-48c3-ad88-247584a4fcfe" />
+
+<img width="1405" height="802" alt="image" src="https://github.com/user-attachments/assets/c637f6ae-2fca-4092-8227-4f31bbf9beda" />
+
+<img width="573" height="291" alt="image" src="https://github.com/user-attachments/assets/45bca35f-a588-479f-a17d-53e1f6335e57" />
+
+<img width="971" height="479" alt="image" src="https://github.com/user-attachments/assets/8db33d79-02e3-47c2-a83e-e5ccbdf19e61" />
+
+ 
+<img width="569" height="374" alt="image" src="https://github.com/user-attachments/assets/2051f297-3607-473d-b7fc-3cf7a7532f4d" />
+
+<img width="571" height="93" alt="image" src="https://github.com/user-attachments/assets/b76de9e8-a230-4bb3-be84-d7834f8e25b4" />
+
+<img width="552" height="474" alt="image" src="https://github.com/user-attachments/assets/a360e764-1f83-4307-8c53-14038120270b" />
+
+<img width="665" height="317" alt="image" src="https://github.com/user-attachments/assets/51c9287d-a37a-46bf-8703-f1a930e2272c" />
+
+
+
+
+
+
+
